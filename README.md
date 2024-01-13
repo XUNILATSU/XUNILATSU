@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... as much as i can so when i die i can take a small portion with me, 
 - 💞️ I’m looking to collaborate on ... Mad tihs bro
 - 📫 How to reach me ... 'well think about me constantly and quantum enganglement will bring us together
-- 😄 Pronouns: ... 'R u kidding me, i have an inny penis until errect, im pretty stout G
+- 😄 Pronouns: ... 'R u kidding me, i have an inny penis until errect, im pretty stout G 
 - ⚡ Fun fact: ... 'viewing the brains pathways individually as north and south poles for oscillation triggering its growth and patterning cycles, #prettybasic
 
 <!---
